@@ -98,3 +98,151 @@ and there is a whole person on the other side of this screen who is ridiculously
 ## ♡ forever?
 
 yes.
+---
+
+## ♡ our little timeline
+
+> **28th April**  
+> the day we started talking.
+
+> **5th May**  
+> the day it became *us*.
+
+> **and every day after that**  
+> another tiny piece of our story.
+
+---
+
+## 💌 open when you miss me
+
+if you're reading this because you miss me,  
+first of all, come here idiot.
+
+i hope you know that even when we're not talking,
+you're still somewhere in my thoughts.
+
+distance, busy days, random silence,
+none of that changes what you mean to me.
+
+so consider this your tiny reminder:
+
+**you are loved. very, very much. ♡**
+
+---
+
+## 🫶 things i want to do with you
+
+- watch movies at 3am
+- make stupid inside jokes nobody understands
+- go on random little adventures
+- take an unreasonable amount of pictures together
+- decorate something together
+- listen to music while doing absolutely nothing
+- have matching things just because we can
+- make more memories that we'll laugh about later
+- annoy each other forever
+- experience all the tiny ordinary things together
+
+---
+
+## 🎧 songs that remind me of you
+
+♡ [song one]  
+♡ [song two]  
+♡ [song three]  
+♡ [song four]  
+♡ [song five]
+
+> some songs just sound different once they become associated with a person.
+
+---
+
+## 💭 things i never say enough
+
+thank you.
+
+for being here.
+
+for listening to me.
+
+for making me laugh.
+
+for all the tiny things you probably don't even realize i notice.
+
+and most importantly,
+
+**thank you for being you.**
+
+---
+
+## 🔐 classified information
+
+**ACCESS LEVEL: ZIM ONLY**
+
+if you're reading this section,
+
+you have successfully unlocked:
+
+> one extremely secret message.
+
+you are my favorite person.
+
+there.
+
+that's the secret.
+
+do NOT leak this information.  
+this is extremely classified. ♡
+
+---
+
+## 💗 reasons i choose you
+
+because you make ordinary moments feel special.
+
+because somehow you became such an important part of my life.
+
+because i can be completely myself around you.
+
+because you make me smile at my phone like an idiot.
+
+because you are *you.*
+
+and because if i had to choose again,
+
+**i'd still choose you.**
+
+---
+
+## 🌙 if you're reading this late at night
+
+put the phone down for a second.
+
+look at the time.
+
+yes, it's probably too late.
+
+go to sleep.
+
+and remember that somewhere in this ridiculously huge world,
+there is someone who loves you more than words can properly explain.
+
+goodnight, zim. ♡
+
+---
+
+# ♡
+
+## this is only the beginning.
+
+there are still so many memories to make,
+places to go,
+songs to discover,
+jokes to create,
+and pages of this story that haven't been written yet.
+
+so let's keep writing it.
+
+**together.**
+
+♡
