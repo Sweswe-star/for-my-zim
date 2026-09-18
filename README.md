@@ -143,15 +143,84 @@ so consider this your tiny reminder:
 - annoy each other forever
 - experience all the tiny ordinary things together
 
+--- 
 ---
 
+## 🪽 zim lore
+
+### things that are painfully him
+
+♡ talking with me, playing games, and spending time with his parents and family.
+
+♡ always reminding me:  
+**"you'll always find me there with you."**
+
+♡ randomly giving me gifts because apparently making me happy is one of your hobbies.
+
+♡ Indian jokes.  
+**ALWAYS.** 😭
+
+♡ **HALLOO HA MALIK**  
+no explanation required literally.
+
+♡ making hundreds of sacrifices that people don't notice,
+and never asking for recognition for them.
+
+♡ being completely free and comfortable with me,
+like he can finally just be himself.
+
+♡ getting jealous sometimes.  
+aww. ♡
+
+♡ wanting to break up with me.  
+which i will NEVER stop teasing him about. 😭
+
+---
+
+## 🧸 tiny things i love about you
+
+not the huge things.
+
+the tiny things.
+
+the way you get worried when you think you messed up.
+
+the way you can talk about literally anything
+and somehow i'll still sit there and listen.
+
+the little moments that become memories without us even realizing it.
+
+like that one time i pranked you and told you i was breaking up with you...
+
+and you really said:
+
+**"yeah wtv i went to pee."**
+
+😭
+
+i don't think you understand how funny that was.
+
+it's moments like these that make me love what we have even more.
+
+---
 ## 🎧 songs that remind me of you
 
-♡ [song one]  
-♡ [song two]  
-♡ [song three]  
-♡ [song four]  
-♡ [song five]
+♡ **Hangover**  
+this one just has a special place in my head because of you.
+
+♡ **Zaveda Zindagi**  
+somehow this song feels like a little piece of our story.
+
+♡ **Shawty Like a Melody**  
+because you're basically stuck in my head like a melody. ♡
+
+♡ **Angels**  
+a song that makes me think of you in the softest way.
+
+♡ **Worry**  
+because sometimes you LITERALLY sound like this song. :(
+
+> some songs just sound different once they become associated with a person.
 
 > some songs just sound different once they become associated with a person.
 
@@ -185,7 +254,7 @@ you have successfully unlocked:
 
 > one extremely secret message.
 
-you are my favorite person.
+you are the Jesse to my Jane, forever.
 
 there.
 
@@ -244,5 +313,64 @@ and pages of this story that haven't been written yet.
 so let's keep writing it.
 
 **together.**
+## 💌 a letter for you
+
+dear zimzim,
+
+nothing much to say except...
+
+**thank you.**
+
+thank you so much for the website. i love it.
+i love it so, so much.
+
+it genuinely made me so happy, and now i'm here making
+this little place for you with the help of a friend who's
+so kind. thank god for her 😭
+
+but most importantly,
+
+**i love you.**
+
+and lovelove, please don't change at all.
+
+i love you exactly the way you are.
+
+i'm proud of you.
+
+i really, really am.
+
+you are an amazing boyfriend.
+
+an amazing boyfriend,
+the best son a mother could ask for,
+the best brother a sibling could ask for,
+
+and hopefully one day,
+the best father our kids could ever pray to have.
+
+i hope you always know how much i appreciate you,
+even for the things people don't notice.
+
+thank you for existing, sweetlove.
+
+thank you for being you.
+
+thank you for being someone i can laugh with,
+talk to, play with, annoy, love, and make memories with.
+
+i love you so much.
+
+and no matter how many silly arguments,
+random jokes, games, late-night conversations,
+or "yeah wtv i went to pee" moments we have,
+
+i'll still choose you.
+
+**i'll stay beside you until death. ♡**
+
+with all my love,
+
+**your girl sweswe ♡**
 
 ♡
